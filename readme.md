@@ -13,6 +13,4 @@ And you're done!
 
 [My Twitter](https://twitter.com/daetam)
 
-[My Soundcloud](https://soundcloud.com/daetam)
-
-My Website (coming soon!)
+[My Website] (http://elijahwilson.me)
